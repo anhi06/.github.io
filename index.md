@@ -1,1 +1,3 @@
 # Tralala
+
+Charakter: Schubadubada
